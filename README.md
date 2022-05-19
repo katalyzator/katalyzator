@@ -1,5 +1,4 @@
 ### Hi there My name is Aibek👋
-### I'm a Software Engineer with 5 years of professional experience. 
 
 
 
